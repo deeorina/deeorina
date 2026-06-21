@@ -13,7 +13,9 @@
 
 
 
-![1000048871](https://github.com/user-attachments/assets/268ad56d-6830-4433-94b8-d606d1c2cd7d)
+
+<img width="1024" height="276" alt="1000048885" src="https://github.com/user-attachments/assets/5096a1fb-9bdd-4d99-a066-ba71fdef2c19" />
+
 
 
 
