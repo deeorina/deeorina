@@ -9,6 +9,7 @@
 
 
 
+![1000048868](https://github.com/user-attachments/assets/959312cd-9c74-46b1-9d93-553087948f24)
 
 <!--<img width="736" height="113" alt="1000048865" src="https://github.com/user-attachments/assets/44985676-4898-4664-9e26-11dabea1724d" />
 <img width="736" height="113" alt="1000048865" src="https://github.com/user-attachments/assets/a44cbae7-0335-463a-8055-551aa297db71" />
@@ -20,4 +21,4 @@ ina/deeorina** is a ✨ _special_ ✨ repository because its `README.md` (this f
 
 Here are some ideas to get you started:
 
--->
+--> kindness is good <img src="https://demolab.com891891" />
