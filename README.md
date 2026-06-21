@@ -1,6 +1,5 @@
 <picture>
-  <img src="https://demolab.com" style="filter: drop-shadow(2px 2px 0px #891891) drop-shadow(-1px -1px 0px #891891) drop-shadow(1px -1px 0px #891891) drop-shadow(-1px 1px 0px #891891);" />
-</picture>
+  <img src="https://demolab.com" style="filter:
 
 hello im deeorina even though i may not be a very good artist and my work is always average i will do my best to please you size=25
 
