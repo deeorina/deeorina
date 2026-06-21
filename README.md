@@ -1,8 +1,15 @@
+hello im deeorina even though i may not be a very good artist and my work is always average i will do my best to please you 
+
+feel free to joke with me however you like im not a sensitive person you can talk to me whenever you want but id appreciate it if you didnt bother me when im busy asf (⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)
+
+
 <picture>
   <img src="https://demolab.com" style="filter: drop-shadow(2px 2px 0px #891891) drop-shadow(-1px -1px 0px #891891) drop-shadow(1px -1px 0px #891891) drop-shadow(-1px 1px 0px #891891);" />
 </picture>
 
 
+![1000048861](https://github.com/user-attachments/assets/ef2fa638-70a1-4c6d-9738-50f08a446a4f)
+![1000048862](https://github.com/user-attachments/assets/cb0f9a2c-2152-4ffa-8131-3a375addcf60)
 
 
 
