@@ -5,7 +5,6 @@ feel free to joke with me however you like im not a sensitive person you can tal
 
 
 
-![1000048861](https://github.com/user-attachments/assets/ef2fa638-70a1-4c6d-9738-50f08a446a4f)
 
 
 ![1000048862](https://github.com/user-attachments/assets/cb0f9a2c-2152-4ffa-8131-3a375addcf60)
