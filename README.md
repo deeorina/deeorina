@@ -13,8 +13,7 @@
 
 
 
-
-<img width="1024" height="276" alt="1000048885" src="https://github.com/user-attachments/assets/5096a1fb-9bdd-4d99-a066-ba71fdef2c19" />
+![1000048885](https://github.com/user-attachments/assets/e67d7dea-3763-4673-b7ae-dd5deed1330b)
 
 
 
