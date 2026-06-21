@@ -22,3 +22,9 @@ ina/deeorina** is a ✨ _special_ ✨ repository because its `README.md` (this f
 Here are some ideas to get you started:
 
 --> kindness is good <img src="https://demolab.com891891" />
+<picture>
+  <img src="https://demolab.com" style="filter: drop-shadow(2px 2px 0px #891891) drop-shadow(-1px -1px 0px #891891) drop-shadow(1px -1px 0px #891891) drop-shadow(-1px 1px 0px #891891);" />
+</picture>   1 | <picture>
+  2 |   <img src="https://demolab.com...
+  3 | </picture>
+  
