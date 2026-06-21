@@ -1,10 +1,6 @@
 
 
 hello im deeorina even though i may not be a very good artist and my work is always average i will do my best to please you
-
-<picture>
-  <img src="https://demolab.com" style="filter:
-
 feel free to joke with me however you like im not a sensitive person you can talk to me whenever you want but id appreciate it if you didnt bother me when im busy asf (⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠) 
 
 
