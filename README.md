@@ -13,8 +13,6 @@
 
 
 
-![1000048885](https://github.com/user-attachments/assets/e67d7dea-3763-4673-b7ae-dd5deed1330b)
-
 
 
 
