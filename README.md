@@ -11,6 +11,11 @@
 
 ![1000048868](https://github.com/user-attachments/assets/959312cd-9c74-46b1-9d93-553087948f24)
 
+
+
+<img width="1000" height="1000" alt="1000048871" src="https://github.com/user-attachments/assets/e9ff7218-739e-4997-94d4-7ddf30cf0495" />
+
+
 <!--<img width="736" height="113" alt="1000048865" src="https://github.com/user-attachments/assets/44985676-4898-4664-9e26-11dabea1724d" />
 <img width="736" height="113" alt="1000048865" src="https://github.com/user-attachments/assets/a44cbae7-0335-463a-8055-551aa297db71" />
 
@@ -21,10 +26,4 @@ ina/deeorina** is a ✨ _special_ ✨ repository because its `README.md` (this f
 
 Here are some ideas to get you started:
 
---> kindness is good <img src="https://demolab.com891891" />
-<picture>
-  <img src="https://demolab.com" style="filter: drop-shadow(2px 2px 0px #891891) drop-shadow(-1px -1px 0px #891891) drop-shadow(1px -1px 0px #891891) drop-shadow(-1px 1px 0px #891891);" />
-</picture>   1 | <picture>
-  2 |   <img src="https://demolab.com...
-  3 | </picture>
-  
+-->
