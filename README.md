@@ -1,8 +1,11 @@
-#hello im deeorina even though i may not be a very good artist and my work is always average i will do my best to please you<img src="https://demolab.comstediğiniz+Renkli+Yazı" />
-891891font=Dancing+Script
+#hello im deeorina even though i may not be a very good artist and my work is always average i will do my best to please you 
+<img src="https://demolab.comstediğiniz+Renkli+Yazı" />
+891891 font=Dancing+Script
 
-#feel free to joke with me however you like im not a sensitive person you can talk to me whenever you want but id appreciate it if you didnt bother me when im busy asf (⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)<img src="https://demolab.comstediğiniz+Renkli+Yazı" />
-891891font=Dancing+Script
+#feel free to joke with me however you like im not a sensitive person you can talk to me whenever you want but id appreciate it if you didnt bother me when im busy asf (⁠´⁠∩⁠｡⁠•⁠ ⁠ᵕ⁠ ⁠•⁠｡⁠∩⁠`⁠)
+
+<img src="https://demolab.comstediğiniz+Renkli+Yazı" />
+891891 font=Dancing+Script
 
 
 ![1000048862](https://github.com/user-attachments/assets/84b80c0e-afe9-46f9-9bdc-b442025d7447)
