@@ -1,10 +1,4 @@
-![1000052691](https://github.com/user-attachments/assets/be188e8b-997d-485a-bb81-220509b3bd4c)
-
-
-![1000052613](https://github.com/user-attachments/assets/d0d1ccdf-db98-42c8-8ab8-7f31c4e86d81)
-
-
-![1000052621](https://github.com/user-attachments/assets/dde21330-f6dd-4ec0-ab3a-50db258bc7e2)
+![1000053957](https://github.com/user-attachments/assets/4f5d0754-d245-49a5-9b5e-02a9f6d01ecd)
 
 
 
