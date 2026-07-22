@@ -1,7 +1,5 @@
 ![1000053957](https://github.com/user-attachments/assets/4f5d0754-d245-49a5-9b5e-02a9f6d01ecd)
 
-![1000015643](https://github.com/user-attachments/assets/40dc17dd-f77d-47a5-b1eb-ff2fafd950bc)
-
 
 <!--<img width="736" height="113" alt="1000048865" src="https://github.com/user-attachments/assets/44985676-4898-4664-9e26-11dabea1724d" />
 <img width="736" height="113" alt="1000048865" src="https://github.com/user-attachments/assets/a44cbae7-0335-463a-8055-551aa297db71" />
